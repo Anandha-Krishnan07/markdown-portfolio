@@ -2,6 +2,6 @@
 _Lets travel together !_
 
 **The world is filled with positivity**
-__Feel the positive vibes__
+__Feel the positive vibe always__
 
 _Make sure **everything** happening around you is for your well-being_
